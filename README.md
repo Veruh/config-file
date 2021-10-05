@@ -1,1 +1,1 @@
-[-] 👀 Hola, soy zSerkahh y solo hago repositorios por aburrimiento XD
+https://discord.gg/hsq
